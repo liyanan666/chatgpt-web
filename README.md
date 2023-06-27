@@ -51,8 +51,10 @@ chatgpt国内镜像网站合集
 
 [⭐⭐🛫] https://freegpt.one/
 
-[⭐⭐] https://hzdjs.cn/chatgpt/chat
+[⭐⭐]   https://hzdjs.cn/chatgpt/chat
 
 [⭐⭐🛫] https://ai.ls/
 
 [⭐⭐🛫] https://desk.im/
+的
+[⭐⭐] http://vip.hanji051.cn
