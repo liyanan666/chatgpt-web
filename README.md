@@ -21,7 +21,7 @@ chatgpt国内镜像网站合集
 
 站点列表
 
-[⭐⭐⭐] https://www.weijiwangluo.com/talk
+[⭐⭐⭐] https://www.atalk-ai.com/
 
 [⭐⭐🛫] https://chatbot.theb.ai/
 
